@@ -10,7 +10,7 @@
 >
 >**📎Contact:**
 >
->**📩Discord: Claud1u#9090/claud1uallah**
+>**📩Discord: claud1uallahs**
 >
 >**📷Images in spoofer**
 
