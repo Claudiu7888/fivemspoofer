@@ -3,6 +3,7 @@
 >**🎯A classic FiveM Spoofer in exe**
 >
 >**🔩Open "Monotone.exe" for the modules**
+> 🧿Disable Anti-Virus
 >
 >**📊Status Info**
 >
