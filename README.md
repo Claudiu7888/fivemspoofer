@@ -12,7 +12,7 @@
 >
 >**📎Contact:**
 >
->**📩Discord: claud1uallahs**
+>**📩Discord: claud1uallah**
 >
 >**📷Images in spoofer**
 
